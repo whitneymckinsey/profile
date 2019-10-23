@@ -1,2 +1,2 @@
 # profile
-Whitey Kimberly Harris McKinsey's Personal Profile
+Whitney Kimberly Harris McKinsey's Personal Profile
